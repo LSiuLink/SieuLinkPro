@@ -13,3 +13,9 @@ https://bestfile.io/en/ssLWiLWccyzWckx/file
 https://bestfile.io/en/Su42ApdaAHiWkud/file
 # Lunch_Lady_v1.8.0
 https://bestfile.io/gVJscXP5YnWLgEX/file
+# Capcut (android)
+https://bestfile.io/ghHeawlhMtrGYOQ/file
+# Capcut (windows) 1.test done
+https://bestfile.io/en/bfPw6ol7SRZJ34R/file
+# Capcut (windows) 2.chưa test
+https://bestfile.io/dvX98f4TV4xI7uw/file
